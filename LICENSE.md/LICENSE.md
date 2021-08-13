@@ -1,1 +1,0 @@
-Already joined in ­
